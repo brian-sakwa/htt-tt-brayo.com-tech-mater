@@ -1,2 +1,3 @@
 # htt-tt-brayo.com-tech-mater
-ᴀ ᴡʜᴀᴛsᴀᴘᴘ ʙᴏᴛ ᴅᴇᴠᴇʟᴏᴘᴇᴅ ʙʏ BRAYO ᴛᴇᴄʜ
+BRIAN SAKWA DEVELOPER SITE
+WE CODEW WHEN WE WANT
